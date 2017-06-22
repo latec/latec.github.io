@@ -1,1 +1,0 @@
-# latec.github.io
